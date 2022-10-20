@@ -1,0 +1,2 @@
+# Naipal-singh
+Affiliate marketing 
